@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Aammjjaad
+# 👋 Hi, I'm Amjad
 
 🚀 Full-Stack Developer | Hosting & Server Specialist
 
