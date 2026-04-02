@@ -34,7 +34,7 @@
 
 ## 📫 Contact Me
 
-* 📧 Email: [aalnjlat87@email.com](mailto:your@email.com)
+* 📧 Email: [aalnjlat87@gmail.com](mailto:your@email.com)
 * mobile : +963982264650
 
 ---
